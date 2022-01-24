@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gperrin01
 - 👀 I’ve put my coding life on hold a few years ago
-- 💞️ I’m now a coaching entrepreneurs and company founders
+- 💞️ I’m now coaching entrepreneurs and company founders
 - 📫 Please do get in touch via Linkedin :  https://www.linkedin.com/in/gperrin01/
 
 <!---
